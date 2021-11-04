@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @FishRacer999
+- 👀 I’m interested in game developing, algorithms (although I am new to them), and game modding.
+- 🌱 I’m currently learning school.
+- 📫 How to reach me: @me on discord (FishRacer999#6771) in Satisfactory modding, or Satisfactory
