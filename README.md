@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @FishRacer999
-- 👀 I’m interested in game developing, algorithms (although I am new to them), and game modding.
-- 🌱 I’m currently learning school.
-- 📫 How to reach me: @me on discord (FishRacer999#6771) in Satisfactory modding, or Satisfactory
+- 👀 I’m interested in game developing, cars, and not doing school.
+- 🌱 I’m currently in High School!
+- 📫 How to reach me: @me on discord (fishracer999), I am not active in any servers, but feel free to add me on Discord!
